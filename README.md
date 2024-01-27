@@ -1,1 +1,1 @@
-# Skin-diseaese-1
+# Skin-disease-1
